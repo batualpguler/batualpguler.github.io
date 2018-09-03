@@ -1,1 +1,0 @@
-# gezi2013.github.io
